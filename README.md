@@ -1,1 +1,1 @@
-[LINK](https://vanyalarin.github.io/pagesMiami/)
+[LINK](https://vanyalarin.github.io/pagesDia/)
